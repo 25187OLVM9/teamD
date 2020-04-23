@@ -1,2 +1,2 @@
 # teamD
-Willeke, Stan, Omar en Ziggy
+Movzes, Gijs, Stijn Jesse
